@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Glitcher
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning school...
+- 💞️ I’m looking to collaborate on nowhere... lol
+- 📫 How to reach me not, just simply not LOLLLL
